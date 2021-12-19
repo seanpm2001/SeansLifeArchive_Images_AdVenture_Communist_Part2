@@ -1,0 +1,1 @@
+To ease the download and control of my AdCom stock images, images of gameplay from rank 50 to rank 60 have been uploaded here. This is the module for my life story project that contains more (2) of my AdVenture Communist gameplay images.
